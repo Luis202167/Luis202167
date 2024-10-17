@@ -9,6 +9,3 @@ Meu nome é Luis Fernando
   ### você pode entrar em contato comigo 📪
 
   Luisfernando.rak.silva@gmail.com
-
-
-![](https://media1.tenor.com/m/hrMpWeOG6XAAAAAd/elbicho-vicotrevs.gif)
